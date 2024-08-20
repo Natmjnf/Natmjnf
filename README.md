@@ -1,6 +1,6 @@
-### Que legal ❤️❣️
+### Bom dia, Boa tarde, Boa noite ❤️
 
--Coisas super legais
+-Bem vindos!
 
 -A vida é bela
 
